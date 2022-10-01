@@ -17,6 +17,8 @@
 
 - 📫 How to reach me **salaudin.23shumon@gmail.com**
 
+- :telephone_receiver: How to contact me [skype] = **live:.cid.38094daec75251c4**
+
 
 
 <h3 align="left">Connect with me:</h3>
